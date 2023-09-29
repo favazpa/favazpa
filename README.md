@@ -1,4 +1,3 @@
-### Welcome to the world of FAVAZ (THE CODING ARTIST)👋 
                              \\\\\\\
                             \\\\\\\\\\\\
                           \\\\\\\\\\\\\\\
